@@ -1,5 +1,7 @@
 Olá 👋 Meu nome é Sarah Giovana Esteves Lawall 
+
 PCD / Assistente ADM/ Auxiliar ADM / Dados 
+
 Me chamo Sarah Giovana , tenho 28 anos , sou de Minas Gerais , não tenho muitas experiências profissionais. Trabalhei como Jovem Aprendiz em uma empresa de telemarketing durante 2 anos. Me formei como Técnico em Guia de Turismo pelo IF Sudeste de MG Trabalhei durante 3 anos em algumas empresas, prestando serviço. Hoje estou desempregada, quando como PCD, tenho Fibromiagia há 8 anos e estou tentando migrar de carreira. * 
 
 *🌍 Moro em Juiz de Fora 
