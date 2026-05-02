@@ -10,6 +10,8 @@ Me chamo Sarah Giovana , tenho 28 anos , sou de Minas Gerais , não tenho muitas
 
 *🧠 Atualmente estou aprendendo Programação / Python 
 
+*📚 Cursando graduação em Tecnologia de Ciências dos Dados EAD pela Universidade Federal do Mato Grosso do Sul - UFMS
+
 *👥 Busco colaborações em Projetos Futuros 
 
 <p align="left">
