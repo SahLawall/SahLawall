@@ -4,7 +4,9 @@ PCD / Estágio / Assistente ADM / Dados
 
 Me chamo Sarah Giovana , tenho 28 anos , sou de Minas Gerais , não tenho muitas experiências profissionais. Trabalhei como Jovem Aprendiz em uma empresa de telemarketing durante 2 anos. Me formei como Técnico em Guia de Turismo pelo IF Sudeste de MG Trabalhei durante 3 anos em algumas empresas, prestando serviço. Hoje estou desempregada, quando como PCD, tenho Fibromiagia há 8 anos e estou tentando migrar de carreira. * 
 
-*🌍 Moro em Juiz de Fora 
+*🎀 Elas Programando - UFMS / FACOM — Projeto de Extensão - Projeto voltado para inclusão feminina na tecnologia. Aulas de programação com App Inventor, palestras com professoras e contato com profissionais de mercado.
+
+*🌍 Moro em Juiz de Fora - MG
 
 *✉️ Você pode me contatar pelo e-mail [sarahlawall@hotmail.com](mailto:sarahlawall@hotmail.com) 
 
